@@ -33,5 +33,5 @@
 
 ## Stats
 
-[![github stats](https://github-readme-stats.vercel.app/api?username=x11fq&show_icons=true&theme=radical)](https://github.com/dragozai)
+[![github stats](https://github-readme-stats.vercel.app/api?username=dragozai&show_icons=true&theme=radical)](https://github.com/dragozai)
 
