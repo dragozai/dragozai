@@ -1,6 +1,6 @@
 ## Kon'nichiwa I'm Ryuuzai <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="28px" alt="Whats Up">
 
-![](https://giphy.com/gifs/xbox-demon-slayer-kimetsu-no-yaiba-xbox-series-x-q217GUnfKAmJlFcjBX)
+![](tumblr_mqnruuteod1r5ooqno1_500.gif)
 
 ### About Me:
 
